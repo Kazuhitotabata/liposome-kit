@@ -63,7 +63,7 @@ Zoila JURADO (Caltech)
 Akshay Maheshwari (Stanford)
 Neha (Northwestern)
 Milena Popovic (Blue Marble Space)
-Kazhito Tabata
+Kazhito Tabata (Univ. of Tokyo)
 Joseph Heili, University of Minnesota
 Paola
 
